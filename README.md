@@ -1,0 +1,2 @@
+# good_idea_for_tomorrow
+万一能有个牛逼的idea呢
